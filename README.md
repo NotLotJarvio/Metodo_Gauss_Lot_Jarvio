@@ -1,0 +1,1 @@
+# Metodo_Gauss_Lot_Jarvio
